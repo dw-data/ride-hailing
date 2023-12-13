@@ -7,7 +7,7 @@ the story that came out of this analysis.*
 
 Story by [Kira Schacht](https://www.twitter.com/daten_drang), with reporting from [Isaac Kaledzi](https://www.dw.com/en/isaac-kaledzi/person-36290439).
 
-**Read the full article on DW.com:** [Link](https://www.dw.com/a-xxx)
+**Read the full article on DW.com:** [Link](https://www.dw.com/a-66784838)
 
 
 ## Dataset
